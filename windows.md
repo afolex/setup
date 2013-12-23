@@ -1,0 +1,12 @@
+1. - WriteMonkey
+1. - Liberkey
+1. - Office
+1. - ImageMounter
+1. - solfege
+1. - Opera
+1. - Steam
+1. - Ditto
+1. - PureText
+1. - http://www.wieldraaijer.nl/others.html 
+1. - MusicBee
+1. - WizMouse
